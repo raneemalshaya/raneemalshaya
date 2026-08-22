@@ -47,7 +47,7 @@ Tools
 📫 Let’s Connect
 
 💼 [LinkedIn](https://2u.pw/3XDPG2)
-✉️ [Email]:ralshaay3@gmail.com
+✉️ [Email]: ralshaay3@gmail.com
 
 ⸻
 
